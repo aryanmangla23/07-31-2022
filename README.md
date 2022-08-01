@@ -33,4 +33,3 @@ Dating relation: Don't go on a date with a girl, with the idea you won't be succ
 4. big project 
 
 **There will always be resentment, but taking responsibility for my own emotion. Rather then getting her to fix something she broke, work on something you broke yourself. That is what you have control over**
-
