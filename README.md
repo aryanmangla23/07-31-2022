@@ -17,3 +17,20 @@ Now writing my diary and am hyped to go to gym again tmrw at 9 😊, cuz i haven
 Always choosing: goal forced upon you --> terrifying and painful, however if you choose it, it is glorious and important milestone when you achieve it. feedback dopamine motivation after achievement. miserableness, cuz chances are it's bc u feel like the problem/situation is out of ur control. Hmm xDDDDDDDDD. Perfect description. Choosing problems = empowered. Problems thrown at you = victimized and miserable. bro so true lol
 
 Your choice: William James life story - very interesting. Your responsibility to interpret the meaning of the even and choose a response.
+
+To not give a fuck about anything is still to give a fuck about something. 
+
+What do we choose to give a fuck about?What values choosing to base actions on? What metrics choosing to measure one's life? good choices, good values, good metrics?
+
+"With great responsibility comes great power" - accepting responsibility in our life, the more power we can exercise over our life.
+
+Dating relation: Don't go on a date with a girl, with the idea you won't be successfull because of insecurities such as women think im too short, etc... Choce of value was disempowering. Better, more attractive value: "I want to date women who like me for who I am"
+
+**I am always Responsible for my own demise. It is my own responsibility to make myself happy again**
+1. exercise ✅
+2. Spend time with friends ✅
+3. meeting new people ✅
+4. big project 
+
+**There will always be resentment, but taking responsibility for my own emotion. Rather then getting her to fix something she broke, work on something you broke yourself. That is what you have control over**
+
